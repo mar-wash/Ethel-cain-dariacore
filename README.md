@@ -1,1 +1,1 @@
-i forgive it all as it come back to me 
+i forgive it all as it comes back to me 
